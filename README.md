@@ -8,6 +8,7 @@ My favorite series is One piece (Sun God Nika)LUFFY vs KAIDO good animation
 ![47fadce8c990c481ae1c7df1610dd4ca](https://github.com/Yunobabes/app-dev/assets/152374175/b7076cf6-4703-4eed-b53e-5afa360a70b3)
 
 CREATOR OF THE SERIES ONE PIECE
+
 **EIICHIRO ODA**
 
 ![Eiichiro-Oda-Net-Worth](https://github.com/Yunobabes/app-dev/assets/152374175/69424519-7838-4995-9287-82f65f051872)
